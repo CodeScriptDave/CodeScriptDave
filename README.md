@@ -1,4 +1,4 @@
-👋 Hi, I’m @CodeScriptDave
+👋 Hi, I’m Dave
 
 - 👀 I’m interested in a plethora of things, ranging from Web Development, Video Game Development, and optimisation of all kinds of processes.
 
