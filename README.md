@@ -12,4 +12,4 @@
 
 - 📝 Thanks to academics, and it being my hobby, I'm able to quickly learn and pick up pretty much anything that's required of me. However, I'm obviously no match for a professional. At least not yet! I'm very patient, so I'm willing to work towards this no matter how many years it takes.
 
-- 📢 If you are an employer looking to hire, I am UK-based. If you are located <20 miles from Manchester, particularly West of Manchester, commute may be possible for me.
+- 📢 If you are an employer looking to hire, I am UK-based. If you are located <20 miles from Manchester, particularly West of Manchester, commute may be possible for me. Full remote work is preferred, but not essential for me.
